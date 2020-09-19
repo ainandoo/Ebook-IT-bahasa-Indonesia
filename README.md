@@ -8,4 +8,10 @@ https://drive.google.com/file/d/0B5PtcLuGa46nSWEwWHMyNW9sOFk/view
 
 https://drive.google.com/file/d/1PKILHgpmhAIcP2QbTq4UAwGAzUnfT_vB/view
 
+# Website Kurasi
+
+1. Petani Kode: Ebook Pemrograman
+
+https://www.petanikode.com/ebook-pemrograman/
+
 ###### Terakhir Update: 18 September 2020
